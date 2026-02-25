@@ -15,3 +15,4 @@ animal lover, penguin and chicken enthusiast!!!! i also like doggies
 tone tag appreciator, they are heavily encouraged if you wanna talk to me or become my friend.
 
 ![Description](https://github.com/pixel8tedfaygo/-About-me-/blob/main/tumblr_15754c36cecf7e19385469f8c674f15b_5bfdd705_100.png)
+![Description](https://github.com/pixel8tedfaygo/-About-me-/blob/main/https://64.media.tumblr.com/8f322fcbb97bfa28cb880c4e9fa1e3ec/09c911bdd47fb038-de/s100x200/e8d34ae39fcdfffb1caa2ad38322b1755024577d.webp)
