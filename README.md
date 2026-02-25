@@ -16,4 +16,4 @@ tone tag appreciator, they are heavily encouraged if you wanna talk to me or bec
 
 ![Description](https://github.com/pixel8tedfaygo/-About-me-/blob/main/tumblr_15754c36cecf7e19385469f8c674f15b_5bfdd705_100.png)
 
-![Description](https://github.com/pixel8tedfaygo/-About-me-/blob/main/https://64.media.tumblr.com/d49745c2880018f17339bc192f19d292/09c911bdd47fb038-a2/s400x600/85816c67bd7f5b9a8b93a19bc2085ce709b10d21.gifv)
+![Description](https://github.com/pixel8tedfaygo/-About-me-/blob/main/tumblr_8f322fcbb97bfa28cb880c4e9fa1e3ec_e8d34ae3_100.webp)
