@@ -6,9 +6,9 @@ ABOUT ME!!
 
 14 yrs old, manufactured 03/26/2011
 
-u may call me scotty/gamzee/micah + any other kin names which u can view on my pronouns.cc, i normally use the names up above tho
+u may call me scotty/gamzee/micah + any other names which u can view on my pronouns.cc, i normally use the names up above tho 🐧🐧🐧🐧
 
-i am a very shy person and i usually dont really text/whisper first, if you wanna talk to me then feel free to whisper me first, im never busy and I may respond to ur whisper!!!!! 
+i am a very shy person and i usually dont really text/whisper first, if you wanna talk to me then feel free to whisper me first, im rarely busy and I may respond to ur whisper!!!!! 
 
 dogkin, GSD therian, and gamzee fictionkin, view more about my identity on my pronouns.cc 
 
@@ -20,7 +20,16 @@ animal lover, penguin and chicken enthusiast!!!! i also like doggies
 
 tone tag appreciator, they are heavily encouraged if you wanna talk to me or become my friend.
 
-i am highly sensitive, it is always encouraged for you to interact with care! <:o3
+i am highly sensitive. i have anxious attachment. it is always encouraged for you to interact with care! <:o3
+
+i love love love cuddles n hugs
+ask 2 c+h always tho, i usually only cuddle friends but i dont mind cuds
+
+MOSTLY found in hangouts, HS area ( rarely ), lab rps, fsrs, gtcs, any other bullshit im EVERYWHERE!!!!
+
+I make suggestive/sui implied jokes, if i do these around u and it makes you uncomfortable PLEASE tell me so i wont do it again!
+
+READ MY DNI PLEASE 
 
 ![Description](https://github.com/pixel8tedfaygo/-About-me-/blob/main/tumblr_15754c36cecf7e19385469f8c674f15b_5bfdd705_100.png)
 
