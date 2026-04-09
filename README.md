@@ -4,7 +4,7 @@
 
 ABOUT ME!!
 
-14 yrs old, manufactured 03/26/2011
+15 yrs old, manufactured 03/26/2011
 
 u may call me scotty/gamzee/micah + any other names which u can view on my pronouns.cc, i normally use the names up above tho 🐧🐧🐧🐧
 
